@@ -1,1 +1,0 @@
-# johnanthonymallett.github.io
